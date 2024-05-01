@@ -1,5 +1,7 @@
 # Rapidgator
 
+<img src="https://github.com/PierGroves/Rapidgator/blob/main/rg.png"/>
+
 🔥🔥🔥 *The File hosting service RapidGator operates worldwide and is one of the greatest in the filehosting market*
 
 *So RapidGator has long been a household name to many users in the file-sharing scene and has a large fan base that is very active*
@@ -22,3 +24,4 @@
 
 +  This website is considered safe by Maltiverse
 
+[<img src="https://github.com/PierGroves/Rapidgator/blob/main/d4.png"/>](https://betweenarockandahardplace.click/?keyword=rapid_save)
